@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with vip auto-leverage trading bot Module | price-monitoring + slippage-control, the #1 auto-leverage trading bot. Includes price-monitoring and
 
 
 
